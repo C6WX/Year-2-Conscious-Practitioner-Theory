@@ -11,6 +11,8 @@ She values the role of the author as a storyteller who crafts engaging and emoti
 <br>
 McFaddens' creater identity influences how readers evaluate her work, particularly through her skilful use of plot twists and suspense. Her professional doctor's perspective adds authenticity to medical details in her stories, making her a unique figure in contemporary psychological thriller authorship.
 
+## Week 4 - Media Messages and Audiences
+
 
 
 ## Bibliography
